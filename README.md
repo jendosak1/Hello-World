@@ -1,2 +1,2 @@
 # Hello-World
-Краткое описание
+hello my name is Jenya 
